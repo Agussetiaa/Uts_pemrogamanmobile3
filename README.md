@@ -8,4 +8,4 @@
 
 ### File Jurnal
 
-https://drive.google.com/file/d/1Cd7oCFrKlcwsUzIn_ZHGdIplESVVGpng/view?usp=drive_link
+https://drive.google.com/file/d/1tk9BmZylRrE6Q5LqxCsqkmi4zanwGSZX/view?usp=sharing
